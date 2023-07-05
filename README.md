@@ -1,0 +1,1 @@
+![Poster](DanilMasnaviev-template.png)
